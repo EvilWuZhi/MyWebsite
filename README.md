@@ -1,1 +1,1 @@
-#### [点我走到主页面](http://wuzh1.work/main.html)
+#### [点我走到主页面](http://v6z.to/)
